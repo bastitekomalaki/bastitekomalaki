@@ -1,4 +1,4 @@
-<HI> welcome saaking sistema </hi>
+<HI> welcome saaking profile </hi>
 * 👂 My name is Chris Sebastian Rito
 * 👩 Pronouns: He/Him
 * 🔭 I’m currently working on my gifthub career
