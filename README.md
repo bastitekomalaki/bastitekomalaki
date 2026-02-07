@@ -16,4 +16,4 @@
 ![C++](https://img.shields.io/badge/c++-%2300599C.svg?style=plastic&logo=c%2B%2B&logoColor=white) ![Arduino](https://img.shields.io/badge/-Arduino-00979D?style=plastic&logo=Arduino&logoColor=white)
 [![](https://visitcount.itsvg.in/api?id=bastitekomalaki&icon=5&color=1)](https://visitcount.itsvg.in)
 ## MY LOVING GIRLFRIEND❤️
-<img src=":https://www.facebook.com/6852b8a3-dce4-4bf2-8beb-0bc937a3fb6b"/>
+<img src="https://www.facebook.com/6852b8a3-dce4-4bf2-8beb-0bc937a3fb6b"/>
