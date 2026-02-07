@@ -10,16 +10,10 @@
 📫 How to reach me: @iamsebastite<br>
 ❤️ I love my gf carmella<br>
 ⚡ Fun fact: i am 6'5
-
-
 ## 🌐 Socials:
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:iamchrisrito@gmail.com) 
-[![instagram](https://www.instagram.com/iamsebastite/)
-
 # 💻 Tech Stack:
 ![C++](https://img.shields.io/badge/c++-%2300599C.svg?style=plastic&logo=c%2B%2B&logoColor=white) ![Arduino](https://img.shields.io/badge/-Arduino-00979D?style=plastic&logo=Arduino&logoColor=white)
-
 [![](https://visitcount.itsvg.in/api?id=bastitekomalaki&icon=5&color=1)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-<img src=https://i.pinimg.com/736x/ad/ea/dc/adeadce1f3d1a343562b0309d4a50831.jpg>
+## MY LOVING GIRLFRIEND❤️
+<img src=blob:https://www.facebook.com/6852b8a3-dce4-4bf2-8beb-0bc937a3fb6b>
