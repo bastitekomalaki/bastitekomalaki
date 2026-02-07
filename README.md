@@ -1,6 +1,8 @@
 <HI all align="center"> welcome saaking profile </hi>
 # 💫 About Me:
-* 👂 My name is Chris Sebastian Rito<br>* 👩 Pronouns: He/Him<br>* 🔭 I’m currently working on my gifthub career<br>* 🌱 I’m currently learning how to basic code and computer works<br>* 🤝 I’m looking to collaborate on making a better world<br>* 🤔 I’m looking for help with basic common codoing skills and knowledge<br>* 💬 Ask me about food<br>* 📫 How to reach me: @iamsebastite<br>* ❤️ I love my gf carmella<br>* ⚡ Fun fact: i am 6'5
+👂 My name is Chris Sebastian Rito<br>
+👩 Pronouns: He/Him<br>
+🔭 I’m currently working on my gifthub career<br>* 🌱 I’m currently learning how to basic code and computer works<br>* 🤝 I’m looking to collaborate on making a better world<br>* 🤔 I’m looking for help with basic common codoing skills and knowledge<br>* 💬 Ask me about food<br>* 📫 How to reach me: @iamsebastite<br>* ❤️ I love my gf carmella<br>* ⚡ Fun fact: i am 6'5
 
 
 ## 🌐 Socials:
